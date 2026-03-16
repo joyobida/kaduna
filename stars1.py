@@ -1,1 +1,1 @@
-stars is a planet, stars shines in the night time. The brightness is such a beauty and the creation of Gods works.How did it come to exists, who knows?. Just enjoy the nature of universe and move on. 
+stars is a planet, stars shines in the night time. The brightness is such a beauty and the creation of Gods works.How did it come to exists, who knows?. Just enjoy the nature of universe and move on. The sun is another planet on is own, it  shines during the day. There will be no comparison between the sun and moon, so don't let anyone bullying you about their success.  
