@@ -1,0 +1,1 @@
+stars is a planet, stars shines in the night time. The brightness is such a beauty and the creation of Gods works.How did it come to exists, who knows?. Just enjoy the nature of universe and move on. 
